@@ -1,3 +1,1 @@
-> 📩 Contact
-> 💸 Commissions
 
